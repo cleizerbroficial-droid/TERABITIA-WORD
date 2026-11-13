@@ -1,0 +1,2 @@
+# TERABITIA-WORD
+So hetero 
